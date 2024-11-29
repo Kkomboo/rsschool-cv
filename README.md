@@ -1,1 +1,1 @@
-rsschool-cv
+https://Kkomboo.github.io/rsschool-cv/
